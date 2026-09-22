@@ -66,6 +66,8 @@ Developed and tested web-based application modules; collaborated across teams on
 **Software Developer Intern** — Skill Development Centre  
 Contributed to software development best practices and team deliverables.
 
+**VIP lounge assistant volenteer**-BLTM
+worked as a bltm volenteer at business leisure travel and mice platform 
 ---
 
 ## 🌐 Languages
